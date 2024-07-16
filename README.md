@@ -7,4 +7,4 @@ My name is Eric, and I am an incoming computer science PhD student at Virginia T
 - 💬 Ask me about anything you want!
 - 📫 How to reach me: [my website](https://eric-unc.tech) has links to everywhere.
 - 😄 Pronouns: he/him/his
-- 🤷 A lot of the time information on me online is outdated. This profile picture is 5 years old; I am not as young and cute as I used to be and in fact, I have transformed into a goblin 👺. It is what it is!
+- 🤷 Frequently, information on me online is outdated. This profile picture is 5 years old; I am not as young and cute as I used to be and in fact, I have transformed into a goblin 👺. It is what it is!
